@@ -1,1 +1,0 @@
-# Animetronics_Mimicking-Hand
